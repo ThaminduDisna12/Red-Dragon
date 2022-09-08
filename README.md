@@ -30,7 +30,10 @@ LATEST VERSION (2022-08-20) ([Whatsapp can't see messages]) [Fixed ]
 
 <p align="center">
 
-<img src="https://i.ibb.co/6tCrPD6/image-downloader-1654443961039.gif" alt="nz" width="350"/>
+
+
+https://user-images.githubusercontent.com/113026793/189112284-fd68a5ca-a480-42d3-b3a6-694f02c81f04.mp4
+
 
 </p>
 
